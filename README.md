@@ -1,12 +1,8 @@
-### keloke ... llego cherxxxo lo mas fresa del pedazo cualehesa 👋	:smiling_imp:	:sweat_drops: :fire:
-
-*soy el bombas* :fire:
-
-
+# *DUEÑO DEL REPOSITORIO ESTÁ APRENDIENDO COMO HACERLO* 💀
+Cherxxxo lo mas fresa del pedazo
 ![Alt](https://assets.stickpng.com/images/580b57fcd9996e24bc43c515.png)
-
-###Dale al enlace :D
-[anchor](https://www.youtube.com/watch?v=pQwWuC25j4A )
+## Soy el bombas 💀 
+[Dale click](https://www.youtube.com/watch?v=pQwWuC25j4A)
 
 <!--
 **Cherxxxo/Cherxxxo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

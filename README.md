@@ -1,4 +1,9 @@
-### keloke ... llego cherxxxo lo mas fresa del pedazo cualehesa 👋
+### keloke ... llego cherxxxo lo mas fresa del pedazo cualehesa 👋	:smiling_imp:	:sweat_drops: :fire:
+
+*texto en cursiva*
+_texto en cursiva_
+
+![Alt](https://banner2.cleanpng.com/20180410/lyw/kisspng-angry-birds-clip-art-angry-bird-5acc99b2732e45.1510653115233581304718.jpg)
 
 <!--
 **Cherxxxo/Cherxxxo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

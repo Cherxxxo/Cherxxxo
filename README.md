@@ -3,7 +3,7 @@
 *texto en cursiva*
 _texto en cursiva_
 
-![Alt](https://banner2.cleanpng.com/20180410/lyw/kisspng-angry-birds-clip-art-angry-bird-5acc99b2732e45.1510653115233581304718.jpg)
+![Alt](https://www.pngfind.com/pngs/m/83-835261_imgenes-de-angry-birds-con-fondo-transparente-descarga.png)
 
 <!--
 **Cherxxxo/Cherxxxo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

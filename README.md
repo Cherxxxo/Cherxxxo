@@ -1,7 +1,7 @@
 # *DUEÑO DEL REPOSITORIO ESTÁ APRENDIENDO COMO HACERLO* 💀
 Cherxxxo lo mas fresa del pedazo
 ![Alt](https://assets.stickpng.com/images/580b57fcd9996e24bc43c515.png)
-## Soy el bombas 💀 
+## Soy el OpenHeimmer 💀 
 [Dale click](https://www.youtube.com/watch?v=pQwWuC25j4A)
 
 <!--
